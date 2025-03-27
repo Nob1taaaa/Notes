@@ -1,3 +1,3 @@
 # Notes
 
-Authoor _ harhsi tshaha
+Author _ Harshit_shah
